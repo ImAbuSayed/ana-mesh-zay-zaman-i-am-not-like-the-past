@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي أنا مش زي زمان
+> عيني في عينك والقلب ولهان
+> نار الشوق بتنادي في المكان
+> (يا حبيبي) روحي معاك في أمان
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
